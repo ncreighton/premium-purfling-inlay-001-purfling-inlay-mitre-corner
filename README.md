@@ -1,0 +1,2 @@
+# premium-purfling-inlay-001-purfling-inlay-mitre-corner
+Tired of scattered notes, sketchy measurements, and lost design inspiration for your purfling and mitre corner projects? The Purfling Inlay &amp; Mitre Corner Craft Hub is your unified workspace for planning, tracking, and perfecting every detail of decorative inlay work.  This Notion template centralizes everything a purfling craftsperson needs—design
